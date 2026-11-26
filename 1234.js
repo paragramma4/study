@@ -1,0 +1,4 @@
+few
+blurc
+w
+wr
